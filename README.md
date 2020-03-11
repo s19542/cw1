@@ -1,2 +1,2 @@
 # cw1
-optional
+Alisa Krsek, 20c, s19542
